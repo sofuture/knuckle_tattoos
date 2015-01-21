@@ -13,3 +13,4 @@
  * ROCK GRDN
  * SALT ERTH
  * BRRN SOIL
+ * BLD(disembodied head dripping blood) WTR(sprinkler shooting blood)
