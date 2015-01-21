@@ -1,1 +1,10 @@
-# knuckle_tattoos
+# knuckle tattoos
+
+## anti-lawn sentiment
+
+NEVR MOW<tiny lawnmower>
+HATE LAWN
+FUCK GRSS
+OVER GROW
+LAWN HELL
+WEED LORD
