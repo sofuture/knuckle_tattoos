@@ -18,3 +18,8 @@
 ## GNAR
 
  * GNAR NIA☃
+
+## anti-sfo sentiment
+
+ * FUCK KSFO
+ * REDO 1906
