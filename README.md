@@ -21,5 +21,4 @@
 
 ## anti-sfo sentiment
 
- * FUCK KSFO
  * REDO 1906
